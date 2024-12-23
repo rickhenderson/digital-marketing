@@ -179,7 +179,7 @@ Here are some examples for you to brainstorm off:
 
 As for your brand aesthetic, some homework for you is just to start collecting screenshots of other people’s Instagram feeds or content that best represent your own personal style you are wanting to achieve with your “forward-facing” elements of this business Pay attention to fonts, colors, even the layout of others’ bios! You may be wondering why but trust me! They will come in handy when you are actually setting up your own Instagram profile where you will be bringing in traffic to your digital product! Remember, this part is supposed to be fun, so don’t over-think or stress out too much. You can always pivot or switch things up in future if you want to!
 
-## Chapter3: SETTING UP YOUR BACKEND
+## Chapter 3: SETTING UP YOUR BACKEND
 
 Let’s discuss creating your digital product!
  Again, a quick reminder - you do have the rights to resell this Playbook;
@@ -911,66 +911,55 @@ FAQ
 Info about your freebie
 Info about your digital product
  You can use THIS LINK to learn how to add a Story to a Highlight.
-5.
- chapter
- LAUNCHING YOUR DIGITAL PRODUCT
+## Chapter 5: LAUNCHING YOUR DIGITAL PRODUCT
 
-YAY! You’ve made it to the launching
- section, which means IT’S GO TIME!
+YAY! You’ve made it to the launching section, which means IT’S GO TIME!
+
 Once you’ve confirmed that your products, your Link In Bio, your email flows,
- and your Instagram and Facebook are all functioning and set up correctly, you
- will want to officially launch your product and start promoting it.
- Here are some fun things you can do to boost sales with your launch:
+and your Instagram and Facebook are all functioning and set up correctly, you
+will want to officially launch your product and start promoting it.
+Here are some fun things you can do to boost sales with your launch:
 Do a short PRE-LAUNCH where you start hinting on your Instagram that
- something new and awesome is coming. Create a countdown. Invite
- people to DM you for that freebie if it’s already ready. Stir up hype!
- Offer a launch promo or special “launch pricing.” You can offer this to
- your audience for a week or so and promote it on both IG and in your
- freebie emails. Just remember to go back through those emails after the
- launch promo ends to take out the sections where you are mentioning it!)
- Create hype in your Stories and posts! Take screenshots of new sales or
- give updates on what’s happening throughout the launch (and of course,
- you can KEEP doing this even AFTER the launch ends as well!)
- Don’t forget to push your freebie! Even if people aren’t ready to buy now,
- you can still get them on your email list by offering your freebie and
- nurture them until they’re ready to buy over time.
+something new and awesome is coming. Create a countdown. Invite
+people to DM you for that freebie if it’s already ready. Stir up hype!
+Offer a launch promo or special “launch pricing.” You can offer this to
+your audience for a week or so and promote it on both IG and in your
+freebie emails. Just remember to go back through those emails after the
+launch promo ends to take out the sections where you are mentioning it!)
+Create hype in your Stories and posts! Take screenshots of new sales or
+give updates on what’s happening throughout the launch (and of course,
+you can KEEP doing this even AFTER the launch ends as well!)
+Don’t forget to push your freebie! Even if people aren’t ready to buy now,
+you can still get them on your email list by offering your freebie and
+nurture them until they’re ready to buy over time.
 Share what you are doing on your other social media platforms,
- and remember to stay consistent.
+and remember to stay consistent.
 The more you practice and put out your content
- the better you will get and the more you will
- learn what works for you! Engage with other
- people in the digital marketing niche to make
- friends in this space and also increase
- engagement on your own account.
+the better you will get and the more you will
+learn what works for you! Engage with other
+people in the digital marketing niche to make
+friends in this space and also increase
+engagement on your own account.
 Lastly, HAVE FUN! Be yourself. Be
- authentic. Be BOLD. And plan to celebrate
- in some way, no matter what!
- Thanks for downloading this freebie, I hope
- this helps get you started and I would love to
- help you on this journey. Feel free to reach
- out on IG @digital_chicken_mama!
- I am SO excited for you!
+authentic. Be BOLD. And plan to celebrate
+in some way, no matter what!
+Thanks for downloading this freebie, I hope
+this helps get you started and I would love to
+help you on this journey. Feel free to reach
+out on IG @digital_chicken_mama!
+I am SO excited for you!
 We all can win!
 You got this!
-6.
- chapter
- LAUNCH DEBRIEF
 
-SALES AND ANALYTICS
- How many leads did you acquire during prelaunch?
- How many people joined your Facebook group or community?
- How many sales did you make during your launch?
-What Went Right?
-What Could Be Improved?
-Other Notes
- 1
-n ed more help?
- If you are in need of guided assistance implementing the systems listed in
- this guide, here are two amazing courses that can get you going!
-Just getting started?
- DBA is the best beginners course I have found so far! It walks
- you through step by step on getting started without being
- overwhelming and it has an amazing community to help
- support you along the way!
-FREE-Sneak Peek into DBA
- Join DBA today!
+## Chapter 6: LAUNCH DEBRIEF
+
+### SALES AND ANALYTICS
+
+* How many leads did you acquire during prelaunch?
+* How many people joined your Facebook group or community?
+* How many sales did you make during your launch?
+* What Went Right?
+* What Could Be Improved?
+* Other Notes
+
+  (note the original ebook has some links here for other digital products.)
