@@ -49,27 +49,16 @@ In purchasing a DONE-FOR-YOU digital product with Private Label Rights, you get 
 
 What you will find with this Playbook is that not only did you purchase the Playbook itself, but you were also granted the Private Label Rights.
 
-These Private Label Rights were outlined in the Terms & Conditions you agreed to at checkout.
+**These Private Label Rights were outlined in the Terms & Conditions you agreed to at checkout.**
 
- 1
- @THE_EPIC_DIGITAL
-WHAT ARE RESELL RIGHTS?
- PLEASE NOTE: If you wish to resell your e-book WITH
- resell rights to your own customers, you
-must adhere to
- the following terms:
-Change the NAME of the e-book (this is
- recommended whether or not you wish to resell this
- playbook with resell rights)
-Modify the branding of the e-book to make it your
- own
- Here is the template link if you would like to make
- this book your own:
- <https://www.canva.com/design/DAGIy119pBI/d_oNJU>
- dacqgr5RHKFis1dg/view?
- utm_content=DAGIy119pBI&utm_campaign=designsh
- are&utm_medium=link&utm_source=publishsharelin
- k&mode=preview
+### WHAT ARE RESELL RIGHTS?
+ 
+**PLEASE NOTE**: If you wish to resell your e-book WITH resell rights to your own customers, you must adhere to the following terms:
+
+* Change the NAME of the e-book (this is recommended whether or not you wish to resell this playbook with resell rights)
+* Modify the branding of the e-book to make it your own 
+
+Here is the template link if you would like to make this book your own: [https://www.canva.com/design/DAGSJop8ihk/REa_V48An1l4TWTiDbwWKw/edit?utm_content=DAGSJop8ihk&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](Get it on Canva)
 
 ## Chapter 2: CRAFTING YOUR VISION
 
