@@ -128,107 +128,58 @@ launch)...
  Month 1: $2k
 Month 2: $3k
 Month 3: $5k
- Now, let’s look at...
- Your First Month:
-If your goal is to bring in $2k in your first 30 days of
- launching your digital product at $97, you’d only have
- to make 20 sales!
- Are you realizing how crazy good the potential with this
- is now?! Even as a beginner, even as someone starting
- a new Instagram account?!
- And the coolest part? It’s PASSIVE income, meaning
- you could be making $$ in your sleep!
-1
-You can price your digital product at
- any price you wish.
- Right now I want you to think about the price you’d
- feel most comfortable selling at, as this will help you
- hit your income goals!
-Also, remember to come from a place of serving your
- audience first, because that is what is going to gain
- you a LOYAL customer.
- 1
+Now, let’s look at...
 
-For your business to thrive you need to know who your
- customer is. Why you may ask? Because it helps you
- craft a messaging strategy that appeals directly to the
- type of audience who are more likely to convert into
- customers.
- As you can probably already tell, my target audience is
- women. My branding, content and language all target
- women. Women who want to build their own
- businesses to support their family and live freely, in
- particular.
- You can either niche down to a specific type of
- audience, or broaden it. It’s really is up to you!
-Here are some questions that will help you
- determine and understand your target
- audience:
- 01 What age bracket are they in? E.g. 25-35
- years old
- 02 Where do they live?
- 03 What’s their gender?
- 04 What problems/pain points do they have?
- 05 Where do they get their information from?
- 06 What kind of content works best for them?
- Brainstorm a list of who you see yourself easily
- identifying with and speaking to in your
- marketing.
- 1
-YOUR BRANDING
-Congrats if you’ve made it this far, because
- now, we’ve reached the fun stuff!
- Your branding is where you get to showcase YOU. Your personality,
- style, taste and vibe! Believe it or not though, there’s actually quite a
- bit that goes into branding because it’s SUPER POWERFUL!
- You will need to consider other things such as:
- The voice or tone of your messaging (i.e. serious, funny, casual,
- formal, optimistic, motivational etc.).
- The style of your social media and products (i.e. feminine, modern,
- minimal, luxurious, bold etc.).
- The values you communicate in your content (i.e. ambition, family,
- gratitude, success, freedom, joy etc.).
- Your brand story (i.e. your personal story or journey that will
- resonate with your target audience).
- But just to get you started first...
- Try decide these TWO things by the end of today:
- The name of your product
- Your brand aesthetic
- Naming Your Product
- When it comes to naming your product, you will want to be thinking
- about what’s going to be the clearest and simplest way to
- communicate what you’re offering to your target audience.
-1
- Phrases like “passive income”, “digital product”, “DFY”
- or “done-for-you” are obviously great ones to consider
- incorporating as they draw attention!
+Your First Month:
+
+If your goal is to bring in $2k in your first 30 days of launching your digital product at $97, you’d only have to make 20 sales! Are you realizing how crazy good the potential with this is now?! Even as a beginner, even as someone starting a new Instagram account?! And the coolest part? It’s PASSIVE income, meaning you could be making $$ in your sleep! You can price your digital product at any price you wish. Right now I want you to think about the price you’d feel most comfortable selling at, as this will help you hit your income goals! Also, remember to come from a place of serving your audience first, because that is what is going to gain you a LOYAL customer. For your business to thrive you need to know who your customer is. Why you may ask? Because it helps you craft a messaging strategy that appeals directly to the type of audience who are more likely to convert into customers. As you can probably already tell, my target audience is women. My branding, content and language all target women. Women who want to build their own businesses to support their family and live freely, in particular. You can either niche down to a specific type of audience, or broaden it. It’s really is up to you! Here are some questions that will help you determine and understand your target audience:
+
+01. What age bracket are they in? E.g. 25-35 years old
+02. Where do they live?
+03. What’s their gender?
+04. What problems/pain points do they have?
+05. Where do they get their information from?
+06. What kind of content works best for them?
+07. Brainstorm a list of who you see yourself easily identifying with and speaking to in your marketing.
+
+### YOUR BRANDING
+
+Congrats if you’ve made it this far, because now, we’ve reached the fun stuff! Your branding is where you get to showcase YOU. Your personality, style, taste and vibe! Believe it or not though, there’s actually quite a bit that goes into branding because it’s SUPER POWERFUL!
+
+You will need to consider other things such as:
+
+* The voice or tone of your messaging (i.e. serious, funny, casual, formal, optimistic, motivational etc.).
+* The style of your social media and products (i.e. feminine, modern, minimal, luxurious, bold etc.). The values you communicate in your content (i.e. ambition, family, gratitude, success, freedom, joy etc.).
+* Your brand story (i.e. your personal story or journey that will resonate with your target audience).
+
+But just to get you started first...
+
+Try decide these TWO things by the end of today:
+
+* The name of your product
+* Your brand aesthetic
+* Naming Your Product
+
+When it comes to naming your product, you will want to be thinking about what’s going to be the clearest and simplest way to communicate what you’re offering to your target audience.
+
+Phrases like “passive income”, “digital product”, “DFY”
+or “done-for-you” are obviously great ones to consider
+incorporating as they draw attention!
 However you also can add your own values and
- language to this, whether that might be “joy”,
- “freedom”, “wealth, “passion,” “purpose,” etc.
+language to this, whether that might be “joy”,
+“freedom”, “wealth, “passion,” “purpose,” etc.
+
 Here are some examples for you to brainstorm off:
- Done-For-You Digital Playbook
-Path To Time-Freedom
-Playbook Wealth Warrior
- Blueprint Roadmap To Passive Income
- Creating Your Brand Aesthetic
- As for your brand aesthetic, some homework for you is
- just to start collecting screenshots of other people’s
- Instagram feeds or content that best represent your
- own personal style you are wanting to achieve with
- your “forward-facing” elements of this business
- Pay attention to fonts, colors, even the layout of others’
- bios!
-You may be wondering why but trust me! They will
- come in handy when you are actually setting up your
- own Instagram profile where you will be bringing in
- traffic to your digital product!
-Remember, this part is supposed to be fun, so don’t
- over-think or stress out too much. You can always pivot
- or switch things up in future if you want to!
- 1
-3.
- chapter
- SETTING UP YOUR BACKEND
+* Done-For-You Digital Playbook
+* Path To Time-Freedom
+* Playbook Wealth Warrior
+* Blueprint Roadmap To Passive Income
+
+#### Creating Your Brand Aesthetic
+
+As for your brand aesthetic, some homework for you is just to start collecting screenshots of other people’s Instagram feeds or content that best represent your own personal style you are wanting to achieve with your “forward-facing” elements of this business Pay attention to fonts, colors, even the layout of others’ bios! You may be wondering why but trust me! They will come in handy when you are actually setting up your own Instagram profile where you will be bringing in traffic to your digital product! Remember, this part is supposed to be fun, so don’t over-think or stress out too much. You can always pivot or switch things up in future if you want to!
+
+## Chapter3: SETTING UP YOUR BACKEND
 
 Let’s discuss creating your digital product!
  Again, a quick reminder - you do have the rights to resell this Playbook;
