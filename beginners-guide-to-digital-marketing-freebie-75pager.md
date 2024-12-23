@@ -64,8 +64,7 @@ Here is the template link if you would like to make this book your own: [https:/
 
 ### IDENTIFY YOUR WHY
 
- Believe me when I say, you SHOULD NOT skip this
- process.
+ Believe me when I say, you SHOULD NOT skip this process.
 Knowing your WHY is what will keep you committed
  to the process.
 Starting a business can throw some people
